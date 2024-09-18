@@ -1,4 +1,5 @@
 # Insurance Intelligence: Targeting Customer Interest in Vehicle Policies
+![Blue and Pink Modern Tech Electronics and Technology Retractable Exhibition Banner (15)](https://github.com/user-attachments/assets/327da0ff-f5df-46ed-b9a8-81d97c0d985f)
 
 ## Introduction
 
